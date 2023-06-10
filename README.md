@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on some projects
 - 📫 reach me on discord on Ainc#8732
-
+-🈂️( PLEASE GIMME SUGGESTIONS OF SOME ANIMES I SHOULD WATCH :) )
 
